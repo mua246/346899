@@ -24,4 +24,4 @@ FC2、TokyoMotion
 LK59.fun
 这是一个新兴的资源站，提供大量的免费播放日本AV影片。资源更新速度较快，涵盖了最新的影片。然而，由于广告和弹窗较多，用户体验可能受到一定影响，因此建议使用广告拦截工具来提升观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mua246/346899 ）</span>
